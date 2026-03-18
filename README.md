@@ -22,7 +22,7 @@ you can whisper me!
 ![tumblr_c7770b3cd07f15b12e8779a38e608c53_1535412c_250](https://github.com/user-attachments/assets/8bf0431b-6904-4c09-96db-d8b7590ea320)
 </div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤINT ![tumblr_0254ca483c0d56f83eebe2a0f06cd292_940e8326_75](https://github.com/user-attachments/assets/e9a5ca64-7fc4-40c0-8219-c972affb0b19)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<strong>INT</strong> ![tumblr_0254ca483c0d56f83eebe2a0f06cd292_940e8326_75](https://github.com/user-attachments/assets/e9a5ca64-7fc4-40c0-8219-c972affb0b19)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤFellow Faith the Unholy Trinityㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤenjoyers!![tumblr_07d9f6f19a166accae4c88d6cde30ac7_8e5cbe04_75](https://github.com/user-attachments/assets/f4e816e2-e96a-4f8d-81f4-65cc74745ae7)
