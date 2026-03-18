@@ -7,12 +7,3 @@
 
 
 
-
-
-![tumblr_4147120d8d443bf1e51d45776729168a_01eb9a6d_100](https://github.com/user-attachments/assets/268ef506-8763-4360-b5d8-cff48cacd031)
-
-
-![tumblr_8d1423c1f8404076aa5ee1ba04f31da3_515b5839_100](https://github.com/user-attachments/assets/e9b3e3da-8101-4392-84b2-fcca3707c4a0)
-
-
-
