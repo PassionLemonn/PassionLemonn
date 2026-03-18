@@ -9,12 +9,16 @@
 
 <div align="center">
 <h2>Hi, I'm Erin!</h2>
+ 
 
 If you ever wanna interact,
+ 
 
 you can whisper me!
+ 
 
 Or you can Visit my [Carrd](https://passionlemon.carrd.co)
+ 
 
 </div>
 
