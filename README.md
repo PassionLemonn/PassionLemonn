@@ -13,37 +13,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIf you ever wanna interact,ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 you can whisper me!
     
-</div>ㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<div align="center">
-
-![tumblr_c7770b3cd07f15b12e8779a38e608c53_1535412c_250](https://github.com/user-attachments/assets/8bf0431b-6904-4c09-96db-d8b7590ea320)
-ㅤ
-<strong>INT</strong> ![tumblr_0254ca483c0d56f83eebe2a0f06cd292_940e8326_75](https://github.com/user-attachments/assets/e9a5ca64-7fc4-40c0-8219-c972affb0b19)
-ㅤ
-ㅤ
-- Fellow Faith the Unholy Trinity enjoyers!![tumblr_07d9f6f19a166accae4c88d6cde30ac7_8e5cbe04_75](https://github.com/user-attachments/assets/f4e816e2-e96a-4f8d-81f4-65cc74745ae7)
-ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-- Analogue Horror fans!![tumblr_0a082207738abb598e0865bec3b662b7_e0da5f91_75](https://github.com/user-attachments/assets/3f560f78-8b03-4725-ad4c-467665df5fc8)
-
-</div>
-
-<div align="center">
-
-![tumblr_c7770b3cd07f15b12e8779a38e608c53_1535412c_250](https://github.com/user-attachments/assets/8bf0431b-6904-4c09-96db-d8b7590ea320)
-</div>
- 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<strong>DNI</strong> ![tumblr_724753efb5cb282335dd881f95bdd9d4_fe056623_75](https://github.com/user-attachments/assets/019d947a-488b-4de8-9c8f-e701fa6a87bd)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤGary x John
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ Shippers
-    
-
-
-
-<div align="center">
-    
-![tumblr_pmqyhmEYa81tq8jl9_540dfs](https://github.com/user-attachments/assets/88a4c1c7-40c1-4f8c-856f-a1c963b6cda0)
-
 </div>
