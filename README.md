@@ -15,7 +15,8 @@
 <div align="center">
     
 <h2>Hi, I'm Erin!</h2>
-If you ever wanna interact, you can whisper me!ㅤ
+If you ever wanna interact,
+you can whisper me!ㅤ
     
 </div>ㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
