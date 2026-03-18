@@ -18,7 +18,7 @@ you can whisper me!
 <div align="center">
 
 ![tumblr_c7770b3cd07f15b12e8779a38e608c53_1535412c_250](https://github.com/user-attachments/assets/8bf0431b-6904-4c09-96db-d8b7590ea320)
-</div>
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<strong>INT</strong> ![tumblr_0254ca483c0d56f83eebe2a0f06cd292_940e8326_75](https://github.com/user-attachments/assets/e9a5ca64-7fc4-40c0-8219-c972affb0b19)
 ㅤㅤㅤ
@@ -29,6 +29,7 @@ you can whisper me!
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ- Analogue Horror fans!![tumblr_0a082207738abb598e0865bec3b662b7_e0da5f91_75](https://github.com/user-attachments/assets/3f560f78-8b03-4725-ad4c-467665df5fc8)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+</div>
 
 <div align="center">
 
