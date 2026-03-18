@@ -1,1 +1,1 @@
-<img width="797" height="64" alt="image" src="https://github.com/user-attachments/assets/dfbe18a8-11d7-4029-b38d-d67ba95d1624" />
+https://64.media.tumblr.com/1eec343135b0ce8a6cfc2ca956be94a7/tumblr_pmqyhmEYa81tq8jl9_540.gifv
