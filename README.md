@@ -25,6 +25,10 @@ INT![tumblr_0254ca483c0d56f83eebe2a0f06cd292_940e8326_75](https://github.com/use
 
 • Faith the Unholy Trinity Fans![tumblr_07d9f6f19a166accae4c88d6cde30ac7_8e5cbe04_75](https://github.com/user-attachments/assets/7e8eaa2e-8f7c-4299-82a1-59c93d239e91)
 
+• Slay the Princess Fans
+
+• Walten Files Fans
+
 • Analogue Horror Fans![tumblr_0a082207738abb598e0865bec3b662b7_e0da5f91_75](https://github.com/user-attachments/assets/0333708e-a658-4d53-9663-b9459144ec6a)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
