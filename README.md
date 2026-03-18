@@ -21,7 +21,7 @@
     
 ![tumblr_c7770b3cd07f15b12e8779a38e608c53_1535412c_250](https://github.com/user-attachments/assets/cc878a50-9435-4d23-ad91-ad7d4ae013e9)
 
-INT![tumblr_0254ca483c0d56f83eebe2a0f06cd292_940e8326_75](https://github.com/user-attachments/assets/6ed90afa-e8d5-4284-9d23-c7e9c0fe4831)
+INT ![tumblr_0254ca483c0d56f83eebe2a0f06cd292_940e8326_75](https://github.com/user-attachments/assets/6ed90afa-e8d5-4284-9d23-c7e9c0fe4831)
 
 • Faith the Unholy Trinity Fans![tumblr_07d9f6f19a166accae4c88d6cde30ac7_8e5cbe04_75](https://github.com/user-attachments/assets/7e8eaa2e-8f7c-4299-82a1-59c93d239e91)
 
@@ -33,4 +33,7 @@ INT![tumblr_0254ca483c0d56f83eebe2a0f06cd292_940e8326_75](https://github.com/use
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ![tumblr_c7770b3cd07f15b12e8779a38e608c53_1535412c_250](https://github.com/user-attachments/assets/5da9ae29-f343-40e6-a2a2-5c39d5aef691)
+
+DNI ![tumblr_724753efb5cb282335dd881f95bdd9d4_fe056623_75](https://github.com/user-attachments/assets/4b128c1b-93a5-4aa1-b3ac-36f7a3e37b20)
+
 
