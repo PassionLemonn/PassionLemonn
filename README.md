@@ -12,7 +12,6 @@ DNI ![tumblr_48e63740e76ced8bec0d73aca9091cf0_f1453845_75](https://github.com/us
 </div>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤGary x John
-
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ Shippers
     
 (It makes me very uncomfortable)
