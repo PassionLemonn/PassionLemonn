@@ -10,12 +10,12 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤHi, I'm Erin!
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤIf you ever wanna interact, you can whisper me!
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤINT ![tumblr_c4aad1466905c76d63823b398452eb6a_b57c0c18_75](https://github.com/user-attachments/assets/672cbd4e-847e-48c3-b224-2414d4ac5c22)
-
 <div align="center">
-    
+
 ![tumblr_c7770b3cd07f15b12e8779a38e608c53_1535412c_250](https://github.com/user-attachments/assets/8bf0431b-6904-4c09-96db-d8b7590ea320)
 </div>
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤINT ![tumblr_c4aad1466905c76d63823b398452eb6a_b57c0c18_75](https://github.com/user-attachments/assets/672cbd4e-847e-48c3-b224-2414d4ac5c22)
 
 
  
