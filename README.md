@@ -14,7 +14,7 @@ If you ever wanna interact,
  
 you can whisper me!
  
-Or you can Visit my [Carrd](https://passionlemon.carrd.co)
+Or you can Visit my [Strawpage](https://passionlemonn.straw.page)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
                                 
